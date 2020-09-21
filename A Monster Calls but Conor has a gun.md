@@ -110,7 +110,7 @@ CHAPTER "THE REST OF THE SECOND TALE/GUN THE HOUSE DOWN"
 
 Conor could feel his breathing growing heavy again. His heart was racing and that
 feverish feeling had come over him once more. He waited a long moment.
-Then he said, “Shoot the damn fireplace.”
+Then he said, “Shoot the fireplace.”
 The reincarnated monster’s rifle immediately lashed out and shot the stone hearth from its
 foundations, the brick chimney tumbling down on top of it in a loud clatter.
 Conor’s breath got heavier still, like he was the one doing the destroying.
