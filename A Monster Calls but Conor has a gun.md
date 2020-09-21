@@ -25,9 +25,9 @@ No. No. He was never going to say what happened in the real nightmare. Never in 
 million years.
 You will tell it, the monster said. For this is why you called me.
 Conor grew even more confused. “Called you? I didn’t call you–”
-You will give me hte head. You know, that head.
+You will give me the head. You know, that head.
 “And what if I don’t?” Conor said.
-The monster gave the evil grin again. Then I will take the gun back
+The monster gave the evil grin again. Then I will take the gun back.
 
 CHAPTER "THE WILDNESS OF STORIES +THE FIRST TALE + THE REST OF THE FIRST TALE/DEATH OF THE MONSTER"
 
@@ -101,10 +101,10 @@ ducked it and pulled on the door handle to get out.
 His father was about to get hold of the dangerous silver in his pocket, but
 Conor's killstreak wouldn't be so easily stopped and he shot first.
 There was silence.
-Then, his father said" You should have gone for the head"
+Then, his father said" You should have gone for the head..."
 Conor nodded,and dealt the finishing shot before his father could get his gun.
 Conor sighed and said "You know what, I would love to be American",
-before strolling back home
+before strolling back home.
 
 CHAPTER "THE REST OF THE SECOND TALE/GUN THE HOUSE DOWN"
 
@@ -121,7 +121,7 @@ air, so hard they seemed to sail nearly to the horizon before crashing to the gr
 “Shoot their furniture!” Conor shouted. “Shoot everything!”
 The monster sighed,"bloody american"
 The monster blasted down the interior of the house, pumping every piece of furniture 
-full of the wonderful ammunition he had
+full of the wonderful ammunition he had.
 “SHOOT THE WHOLE THING DOWN!” Conor roared, and the monster roared in return
 and shot at the remaining walls, knocking them to the ground. Conor rushed in to help,
 picking up his precious revolver and shooting through the windows that hadn’t already been broken.
@@ -130,7 +130,7 @@ frenzy of destruction, just mindlessly shooting and shooting and shooting.
 The monster was right. It was very satisfying.
 Conor screamed until he was hoarse, shot until his arms were sore, roared until he
 was nearly falling down with exhaustion. When he finally stopped, he found the monster
-watching him quietly from outside the wreckage. Conor panted and leaned on the branch to keep
+watching him quietly from outside the wreckage. Conor panted and struggled to keep balance, and leaned on the branch to keep
 himself balanced.
 Now that, said the monster, is how destruction is properly done.
 And suddenly they were back in Conor’s grandma’s sitting room.
